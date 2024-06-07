@@ -1,3 +1,3 @@
-![](https://files.catbox.moe/ckcoye.png)
+![](https://files.catbox.moe/dmc5qg.png)
 
-whisp  to  interact ⠀𑁬⠀ ⠀[bundles](https://bundlrs.cc/freshen)
+whisp  to  interact ⠀𑁬⠀ ⠀[bundles](https://bundlrs.cc/freshed)
